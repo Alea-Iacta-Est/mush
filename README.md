@@ -2,3 +2,8 @@ mush
 ====
 
 The world forgetting, by the world forgot :coffee:
+
+How happy is the blameless vestal’s lot!
+The world forgetting, by the world forgot.
+Eternal sunshine of the spotless mind!
+Each pray’r accepted, and each wish resign’d
